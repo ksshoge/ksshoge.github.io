@@ -1,1 +1,0 @@
-# ksshoge.github.io
